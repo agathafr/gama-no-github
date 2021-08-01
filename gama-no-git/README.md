@@ -1,0 +1,1 @@
+Os módulos do curso até o momento têm sido excepcionais para a construção de uma boa base inicial de conhecimento. 
